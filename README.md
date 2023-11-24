@@ -2,9 +2,9 @@
 
 ###
 
-💻 - Sou da Squad de Concessão
+💻 - Sou da Squad de Gestao e Transacao do cartao 
 
-💬 - Pode me chamar para qualquer B.O que tamo junto !!!
+💬 - Pode me chamar para qualquer B.O que tamo junto !!! @leonardo.goncalves
 
 ###
 
